@@ -1,1 +1,1 @@
-it has the apps that i made with using ai agent and me knowledge☺️☺️. 
+it has all the prototypes apps that i build with ai agent in my learning journey☺️.
